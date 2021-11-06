@@ -1,1 +1,1 @@
-# two-wolves-rpy
+# [Посетить сайт](https://bit.ly/wolves-money)
